@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @Hallelujah1105
+- 👀 I’m interested in meeting people from all round The world 
+- 🌱 I’m currently learning on content writing, website design and Graphic design 
+- 💞️ I’m looking to collaborate on working with people to work with 
+- 📫 How to reach me is on Whattsapp @+23409039538173,Instagram @Hallelujah1105
+- 😄 Pronouns: Halle/lu/jah
+- ⚡ Fun fact: am kind,funn to chat with, and love sincererity
+-Am not selective about freinds
+-And God's first 😍😍🙏🙏
+-Hallelujah1105/Hallelujah1105 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes. 
