@@ -7,5 +7,4 @@
 - ⚡ Fun fact: am kind,funn to chat with, and love sincererity
 -Am not selective about freinds
 -And God's first 😍😍🙏🙏
--Hallelujah1105/Hallelujah1105 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes. 
+-Hallelujah1105/Hallelujah1105 is a ✨ special ✨ repository✨
